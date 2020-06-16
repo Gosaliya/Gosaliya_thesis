@@ -1,1 +1,0 @@
-# Gosaliya_thesis
